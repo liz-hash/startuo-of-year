@@ -1,1 +1,1 @@
-# startuo-of-year
+# startup-of-year
